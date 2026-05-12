@@ -1,4 +1,4 @@
-# 
+# new 1Password for macOS Integration | system-optimization + secure-browsing offers the most advanced 1Password for macOS integration, with system-optimization and secure-browsing.
 
 
 
